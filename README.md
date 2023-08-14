@@ -1,1 +1,1 @@
-2nd year at UWO in Civil Engineering w/ AISE
+3rd year at University of Western Ontario in Civil Engineering w/ AISE
